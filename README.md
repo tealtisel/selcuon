@@ -1,5 +1,7 @@
 ## <a href="https://shorten.is/nanotv">CANLI MAÇ İZLEMEK İÇİN TIKLA</a>
 
+<a href="https://t.me/betnanotv"><img src="https://i.ibb.co/My9rt8ZJ/DALL-E-2025-02-15-20-06-17-A-horizontal-banner-combining-the-Betnano-TV-branding-with-the-Telegram-c.webp"></a>
+
 <a href="https://shorten.is/nano"><img src="https://s7.gifyu.com/images/SX5dx.gif"></a>
 
 | %100 Hoşgeldin Spor Bonusu | %100 + 50 Freespin Slot Hoşgeldin Bonusu |
